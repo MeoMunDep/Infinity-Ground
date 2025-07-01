@@ -1,2 +1,1 @@
-# Infinity-Ground
-Auto referrals, do tasks, checkin.
+This game is airdropped, please choose another scripts!
